@@ -1,0 +1,2 @@
+# bot
+Penuh dengan kepalsuan
